@@ -26,4 +26,5 @@
 [ρrɳs.૮૮](https://pronouns.cc/@cyberpunk)
 <p align="center">
 
-![IMG_4472](https://github.com/user-attachments/assets/a214692e-d535-4624-bb3e-874f3e5f6896)
+
+![IMG_5046](https://github.com/user-attachments/assets/8356361f-4327-4234-8e35-d7de601b4952)
