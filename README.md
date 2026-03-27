@@ -2,7 +2,6 @@
 
 <p align="center"
 
-![image](https://github.com/user-attachments/assets/29dbcfe8-6bf5-426c-a1e8-1656428b8211)
 
 
 <p align="center"
