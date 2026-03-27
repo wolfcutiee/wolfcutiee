@@ -28,7 +28,7 @@ src=https://github.com/user-attachments/assets/3a43a8fd-859a-4039-9db8-816e21de3
 
 more links will be placed here wait paitently thank you <3
 
-[𝗮𝘁𝗮](https://animacity.atabook.org)  ⠀ [𝘀𝘁𝗿𝗮𝘄𝗽𝗮𝗴𝗲](https://facelook.straw.page/)
+[𝗮𝘁𝗮](https://animacity.atabook.org)
 <p align="center">
  
 <img width="300" height="300" alt="Untitled2078_20260327182355" src="https://github.com/user-attachments/assets/8425b872-6afb-4f4a-a2a9-d2afb3326251" />
