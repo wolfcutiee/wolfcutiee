@@ -8,6 +8,7 @@
 
 
  
+<img width="790" height="565" alt="Untitled2077_20260326204929" src="https://github.com/user-attachments/assets/b31781ba-e65a-41c8-8259-6c1c0ae678c0" />
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Lobster+Two&duration=4000&pause=1000&color=FFBFE7&background=571C3A00&center=true&width=435&lines=%22+my+moon+%2C+my+man+%22)](https://git.io/typing-svg)
 
@@ -18,7 +19,8 @@
 <p align="center">
  
  
-<img width="500" height="500" alt="Untitled2032_20260213201719" src="https://github.com/user-attachments/assets/ab0efbb3-2305-4a6e-9940-40c146707950" />
+<img width="790" height="565" alt="Untitled2077_20260326204929" src="https://github.com/user-attachments/assets/b31781ba-e65a-41c8-8259-6c1c0ae678c0" />
+
  <div align="center"> 
 
 [ρrɳs.૮૮](https://pronouns.cc/@cyberpunk)
