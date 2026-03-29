@@ -26,7 +26,7 @@ src=https://github.com/user-attachments/assets/3a43a8fd-859a-4039-9db8-816e21de3
 
  <div align="center"> 
 
-$\color{red}{\textsf{look at prns for information about me , 𝐒𝐓𝐑𝐈𝐂𝐓𝐋𝐘 𝐃𝐍𝐈 ship discourse}}$
+$\color{red}{\textsf{look at prns for information about me ┆ 𝐒𝐓𝐑𝐈𝐂𝐓𝐋𝐘 𝐃𝐍𝐈 ship discourse i'm a 𝘮͜𝘶͜𝘭͜𝘵͜𝘪͜𝘴͜𝘩͜𝘪͜𝘱͜𝘱͜𝘦͜𝘳͜ so i don't care on what you ship.}}$
 
 [𝗮𝘁𝗮](https://animacity.atabook.org) ⠀ ⠀ [𝗽𝗿𝗻𝘀.𝗰𝗰](https://pronouns.cc/@silverwolf.) ⠀ ⠀ ♡
 <p align="center">
