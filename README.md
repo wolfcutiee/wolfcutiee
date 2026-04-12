@@ -28,7 +28,7 @@ src=https://github.com/user-attachments/assets/3a43a8fd-859a-4039-9db8-816e21de3
 
 $\color{red}{\textsf{look at prns for information about me , 𝐒𝐓𝐑𝐈𝐂𝐓𝐋𝐘 𝐃𝐍𝐈 ship discourse}}$
 
-[𝗮𝘁𝗮](https://animacity.atabook.org) ⠀ ⠀ [𝗽𝗿𝗻𝘀.𝗰𝗰](https://pronouns.cc/@silverwolf.) ⠀ ⠀[𝗶𝗺𝗽𝗼𝗿𝘁𝗮𝗻𝘁 𝗽𝗹𝗲𝗮𝘀𝗲 𝗰𝗹𝗶𝗰𝗸](https://dnifyoucopyskins.straw.page/)  ⠀ ⠀♡
+[𝗮𝘁𝗮](https://animacity.atabook.org) ⠀ ⠀ [𝘀𝘁𝗿𝗮𝘄𝗽𝗮𝗴𝗲](https://wolvesunite.straw.page/) ⠀ ⠀[𝗶𝗺𝗽𝗼𝗿𝘁𝗮𝗻𝘁 𝗽𝗹𝗲𝗮𝘀𝗲 𝗰𝗹𝗶𝗰𝗸](https://dnifyoucopyskins.straw.page/)  ⠀ ⠀♡
 <p align="center">
  
 <img width="300" height="300" alt="Untitled2078_20260327182355" src="https://github.com/user-attachments/assets/8425b872-6afb-4f4a-a2a9-d2afb3326251" />
