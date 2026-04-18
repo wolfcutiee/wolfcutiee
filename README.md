@@ -21,7 +21,7 @@
 <img sarc="790" height="565" alt="Untitled2077_20260326204929" src="https://github.com/user-attachments/assets/b31781ba-e65a-41c8-8259-6c1c0ae678c0" />
  <div align="center"> 
  
-<img sarc="90" height="90" alt="Untitled2077_20260326204929"
+<img sarc="700" height="700" alt="Untitled2077_20260326204929"
 src=https://github.com/user-attachments/assets/3a43a8fd-859a-4039-9db8-816e21de34d2 />
 
  <div align="center"> 
