@@ -15,7 +15,7 @@
 <p align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fontdiner+Swanky&pause=1000&color=fd5e53&center=true&width=435&lines=%22+Look+at+that+i'm+human!+%22" alt="Typing SVG" /></a>
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=wolfcutiee&label=󠀠⠀‿‿⠀𝐁eastmen⠀%20&color=fd5e53&style=flat" alt="wolfcutiee" 
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=wolfcutiee&label=󠀠⠀‿‿⠀𝐁eastmen⠀%20&color=fd5e53&social"alt="wolfcutiee" 
   / >
  
 
