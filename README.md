@@ -1,6 +1,6 @@
 <sup><sub>Anonymous October 17, 2026 at 5:48:43 PM github: wolfcutiee · 02:34 PM [340 . waittt uhm abc] I love coal too much she's more than just a piece of coal she's my gf </sub></sup>
 
-<sup><sub> -- this isn't me if u see someone saying this shit in ur ata it isn't me -_- </sub></sup>
+<sup><sub> -- this isn't me if u see someone saying this shit in ur ata it isn't me -_- I'm almost never at spawn and if I am im with my irl brother holy shit </sub></sup>
 
 <img src="https://files.catbox.moe/a13eua.png" width="500" height="auto" align="left"></img></a>
 
