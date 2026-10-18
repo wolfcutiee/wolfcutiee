@@ -1,3 +1,6 @@
+<sup><sub>Anonymous October 17, 2026 at 5:48:43 PM github: wolfcutiee · 02:34 PM [340 . waittt uhm abc] I love coal too much she's more than just a piece of coal she's my gf </sub></sup>
+
+<sup><sub> -- this isn't me if u see someone saying this shit in ur ata it isn't me -_- </sub></sup>
 
 <img src="https://files.catbox.moe/a13eua.png" width="500" height="auto" align="left"></img></a>
 
@@ -12,6 +15,7 @@
 <sup><sub>[@pt-stars](https://github.com/pt-stars) [@pt-fashion](https://github.com/pt-fashion) [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) [@pt-heavyfictkin](https://github.com/pt-heavyfictkin) </sub></sup>
 
   <sup><sub>[@pt-friendships](https://github.com/pt-friendships) [@ship-town](https://github.com/ship-town) [@kaotown](https://github.com/kaotown) </sub></sup>       <img width="20" height="25" alt="image" src="https://64.media.tumblr.com/679ffa0f1d444d4915032c410564fc15/123752b6273a6a2b-ff/s75x75_c1/78cd0e3a43d1177f0ecba2efbdd433a2f4a725e6.gif" />
+
 
 
 
