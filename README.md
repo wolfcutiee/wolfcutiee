@@ -8,7 +8,7 @@ pfp & da readme art ***NOT*** the linked icons are by: guzamaniac on Tumblr
   <img sarc="30" height="25" alt="awwwwaaaa" src="https://github.com/user-attachments/assets/e823718c-95e9-499a-8cbe-c99a11e8f3f1" />
  <div align="center"> 
  
-[<img src="https://i.postimg.cc/cC4v2YtM/MY-ART1.png" width="100">](https://fluffle.cc/primerick) [<img src="https://i.postimg.cc/fWXWx9Sg/two.png" width="110">](https://ricksanchez.atabook.org) [<img src="https://i.postimg.cc/1zfVP3CY/click.png" width="100">](https://copied-ponies.straw.page) 
+[<img src="https://i.postimg.cc/cC4v2YtM/MY-ART1.png" width="100">](https://fluffle.cc/primerick) [<img src="https://i.postimg.cc/nhtkrF5S/TWO.png" width="110">](https://ricksanchez.atabook.org) [<img src="https://i.postimg.cc/1zfVP3CY/click.png" width="100">](https://copied-ponies.straw.page) 
 
 <sup><sub> ⠀     thank     u ⠀    <sup><sub>
 
