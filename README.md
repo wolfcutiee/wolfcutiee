@@ -1,4 +1,4 @@
-
+im too lazy to do the last icon atm...
 
 <img src="https://files.catbox.moe/geimn2.png" width="400" height="auto" align="left"></img></a>
 
