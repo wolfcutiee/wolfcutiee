@@ -1,5 +1,4 @@
-pfp & da readme art are by: guzamaniac on Tumblr
-linked icons are by me X3
+
 
 <img src="https://files.catbox.moe/geimn2.png" width="400" height="auto" align="left"></img></a>
 
@@ -17,5 +16,10 @@ linked icons are by me X3
 
   <sup><sub>[@pt-friendships](https://github.com/pt-friendships) [@ship-town](https://github.com/ship-town) [@kaotown](https://github.com/kaotown) </sub></sup>       <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/dccba85f-5be5-4b7f-a4b9-8e8b656a789a" />
 
-
+<details>
+<summary align="center"></summary>
+  <div align="center">
+    ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
+    
+<sup><sub> pfp + readme art by [guzamaniac](https://www.tumblr.com/guzamaniac) on Tumblr the linked icons is the only art made by me <sup><sub>
 
