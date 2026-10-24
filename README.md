@@ -21,5 +21,5 @@
   <div align="center">
     ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
     
-<sup><sub> pfp + readme art by [guzamaniac](https://www.tumblr.com/guzamaniac) on Tumblr the linked icons is the only art made by me <sup><sub>
+<sup><sub> pfp + readme art by [guzamaniac](https://www.tumblr.com/guzamaniac) the linked icons is the only art made by me <sup><sub>
 
