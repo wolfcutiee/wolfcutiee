@@ -1,4 +1,4 @@
-pfp & da readme art ***NOT*** the linked icons are by: guzamaniac on Tumblr
+pfp & da readme art are by: guzamaniac on Tumblr ***NOT*** the linked icons 
 
 <img src="https://files.catbox.moe/geimn2.png" width="400" height="auto" align="left"></img></a>
 
