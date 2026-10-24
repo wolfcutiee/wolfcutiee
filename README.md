@@ -2,7 +2,7 @@ icons are a la wip enjoy the last of my rick & morty theme on dis readme
 
 <img src="https://files.catbox.moe/geimn2.png" width="400" height="auto" align="left"></img></a>
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=wolfcutiee&label=🄷O🅢TAGES&labelColor=00000&color=A0161C&style=social" alt="Profile views badge"/>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=wolfcutiee&label=🄷O🅢TAGES&labelColor=00000&color=A0161C&style=plastic" alt="Profile views badge"/>
 
   
   <img sarc="30" height="25" alt="awwwwaaaa" src="https://github.com/user-attachments/assets/e823718c-95e9-499a-8cbe-c99a11e8f3f1" />
