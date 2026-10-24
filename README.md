@@ -1,4 +1,4 @@
-revamping la GitHub
+icons are a la wip enjoy the last of my rick & morty theme I guess
 
 <img src="https://files.catbox.moe/geimn2.png" width="400" height="auto" align="left"></img></a>
 
