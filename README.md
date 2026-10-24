@@ -5,7 +5,7 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=wolfcutiee&label=🄷O🅢TAGES&labelColor=00000&color=A0161C&style=plastic" alt="Profile views badge"/>
 
   
-  <img sarc="30" height="25" alt="awwwwaaaa" src="https://github.com/user-attachments/assets/e823718c-95e9-499a-8cbe-c99a11e8f3f1" />
+<img width="20" height="20" alt="tumblr_db4a5a80cfdf620e1e79705337debe77_0bef6f75_75" src="https://github.com/user-attachments/assets/9085c392-553b-41f9-95de-9ec386a50f13" />
  <div align="center"> 
  
 [<img src="https://i.postimg.cc/cC4v2YtM/MY-ART1.png" width="100">](https://fluffle.cc/primerick) [<img src="https://i.postimg.cc/nhtkrF5S/TWO.png" width="110">](https://ricksanchez.atabook.org) [<img src="https://i.postimg.cc/TPBSkM1B/CLICK.png" width="100">](https://copied-ponies.straw.page) 
