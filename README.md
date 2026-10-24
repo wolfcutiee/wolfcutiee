@@ -15,7 +15,7 @@
 <sup><sub>[@pt-stars](https://github.com/pt-stars) [@pt-fashion](https://github.com/pt-fashion) [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) [@pt-heavyfictkin](https://github.com/pt-heavyfictkin) </sub></sup>
 
   <sup><sub>[@pt-friendships](https://github.com/pt-friendships) [@ship-town](https://github.com/ship-town) [@kaotown](https://github.com/kaotown) </sub></sup>      <img width="20" height="20" alt="tumblr_82a9ce0108b59531d13cbaba668c5836_80d73c86_75" src="https://github.com/user-attachments/assets/2d16bf72-4545-4df6-a08c-a41d63fb1761" />
-<details>
+<details> ⓒ𝗋ₑdᵢts
 <summary align="center"></summary>
   <div align="center">
     ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
