@@ -1,6 +1,6 @@
 revamping la GitHub
 
-<img src="https://files.catbox.moe/a13eua.png" width="500" height="auto" align="left"></img></a>
+<img src="https://files.catbox.moe/geimn2.png" width="400" height="auto" align="left"></img></a>
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=wolfcutiee&label=󠀠⠀‿‿⠀𝘼𝗗𝗩𝗘𝗡𝗧𝗨𝗥𝗘𝗦⠀⠀⠀%20&color=f7f352&social"alt="wolfcutiee" 
   / > <img width="20" height="25" alt="image" src="https://github.com/user-attachments/assets/f1de6a29-7e0b-46b7-99f9-052d4f2f9d15" />
