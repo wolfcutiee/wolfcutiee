@@ -1,4 +1,4 @@
-icons are a la wip enjoy the last of my rick & morty theme I guess
+icons are a la wip enjoy the last of my rick & morty theme on dis readme
 
 <img src="https://files.catbox.moe/geimn2.png" width="400" height="auto" align="left"></img></a>
 
