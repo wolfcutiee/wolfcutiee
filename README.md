@@ -1,4 +1,4 @@
-icons are a la wip enjoy the last of my rick & morty theme on dis readme - p.s I still very much love rick and morty lol so it'll come back soon
+pfp & da readme art ***NOT*** the linked icons are by: guzamaniac on Tumblr
 
 <img src="https://files.catbox.moe/geimn2.png" width="400" height="auto" align="left"></img></a>
 
