@@ -2,7 +2,7 @@
 
 <img src="https://files.catbox.moe/geimn2.png" width="400" height="auto" align="left"></img></a>
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=wolfcutiee&label=🄷O🅢TAGES&labelColor=00000&color=A0161C&style=plastic" alt="Profile views badge"/>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=wolfcutiee&label=.🅻OS𝖳.𝖨N.🅈OU.&labelColor=00000&color=A0161C&style=plastic" alt="Profile views badge"/>
 
   
 <img width="20" height="20" alt="tumblr_db4a5a80cfdf620e1e79705337debe77_0bef6f75_75" src="https://github.com/user-attachments/assets/9085c392-553b-41f9-95de-9ec386a50f13" />
