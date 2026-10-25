@@ -15,10 +15,10 @@
 <sup><sub>[@pt-stars](https://github.com/pt-stars) [@pt-fashion](https://github.com/pt-fashion) [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) [@pt-heavyfictkin](https://github.com/pt-heavyfictkin) </sub></sup>
 
   <sup><sub>[@pt-friendships](https://github.com/pt-friendships) [@ship-town](https://github.com/ship-town) [@kaotown](https://github.com/kaotown) </sub></sup>      <img width="20" height="20" alt="tumblr_82a9ce0108b59531d13cbaba668c5836_80d73c86_75" src="https://github.com/user-attachments/assets/2d16bf72-4545-4df6-a08c-a41d63fb1761" />
-<details> 🅲redits
+<details> 🅲redits + 🄼ore
 <summary align="center"></summary>
   <div align="center">
     ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
     
-<sup><sub> pfp + readme art by [guzamaniac](https://www.tumblr.com/guzamaniac) only the 1st linked icon is art made by me <sup><sub>
+<sup><sub> pfp + readme art by [guzamaniac](https://www.tumblr.com/guzamaniac) only the 1st linked icon is art made by me, please look at my 3rd link thankfully it isn't something I have to update but it's about specific people who copy my friends ponies :o (!! I hate that I have to update that page but plsplspls it'd really be appreciated if anyone we're able to help  <sup><sub>
 
