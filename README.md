@@ -22,5 +22,7 @@
     
 <sup><sub> pfp + readme art by [guzamaniac](https://www.tumblr.com/guzamaniac) only the 1st linked icon is art made by me <sup><sub>
 
-<sup><sub> please look at my 3rd link thankfully it isn't something I have to update but it's about specific people who copy my friends ponies :o (!! I hate that I have to update that page but plsplspls it'd really be appreciated if anyone we're able to help if u ever are a friend of mines who has gotten copied & have screenshots for it dont be scared to shoot a dm or an ata sign asking me to add you or even if u aren't my friend I'd love to help those in need   <sup><sub>
+<sup><sub> please look at my 3rd link thankfully it isn't something I have to update but it's about specific people who copy my friends ponies :o (!! I hate that I have to update that page but plsplspls it'd really be appreciated if anyone we're able to help if u ever are a friend of mines who has gotten copied & have screenshots for it dont be scared to shoot a dm or an ata sign asking me to add you or even if u aren't my friend I'd love to help those in need <sup><sub>
+
+<sup><sub> other fyi DONT DRAG ME INTO DRAMA IM NOT IN just because im the sibling or someone else I BARLEY know doesn't mean im involved at all its rlly annoying and I dont wanna hear about it either like this specifically goes for spawn im not involved in anything having to do with dw related things or domo because idk why people can't just hide, block and get over it 100 ponytown people vs the hide & block button ;-;;-; <sup><sub> 
 
