@@ -3,7 +3,7 @@
 <img src="https://files.catbox.moe/geimn2.png" width="400" height="auto" align="left"></img></a>
 
 <p align="center">
-<sup><sub> DONT DRAG ME INTO DRAMA IM NOT IN <sup><sub> 
+<sup><sub> don't drag me into drama I'm not in <sup><sub> 
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=wolfcutiee&label=.🅻OS𝖳.𝖨N.🅈OU.&labelColor=00000&color=A0161C&style=plastic" alt="Profile views badge"/>
 
