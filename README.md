@@ -1,8 +1,15 @@
 <div align="center">
   
-meaf anyways remaking :\
+meaf anyways remaking ;-;
 
-<img width="478" height="266" alt="image" src="https://github.com/user-attachments/assets/eace08a2-6b87-4a61-9fba-99942f45be51" />
+<img width="431" height="242" alt="image" src="https://github.com/user-attachments/assets/0bd3af5f-96a2-4e57-ac32-a1973d62c0f0" />
+
+[ata](https://ricksanchez.atabook.org) the rest is a wip :/ cus this photo lowkey temporary
 
 
+<sup><sub> ⠀     thank     u ⠀    <sup><sub>
+
+<sup><sub>[@pt-stars](https://github.com/pt-stars) [@pt-fashion](https://github.com/pt-fashion) [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) [@pt-heavyfictkin](https://github.com/pt-heavyfictkin) </sub></sup>
+
+  <sup><sub>[@pt-friendships](https://github.com/pt-friendships) [@ship-town](https://github.com/ship-town) [@kaotown](https://github.com/kaotown) [@pt-piddlesjet](https://github.com/piddlesjet) </sub></sup>
 
