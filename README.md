@@ -3,6 +3,7 @@
 
 
 <img width="431" height="242" alt="image" src="https://github.com/user-attachments/assets/0bd3af5f-96a2-4e57-ac32-a1973d62c0f0" />
+
 this is a temporary layout
 
 [ata](https://ricksanchez.atabook.org) 
