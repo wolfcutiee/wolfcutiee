@@ -1,11 +1,13 @@
 <div align="center">
   
-meaf anyways remaking ;-;
+the rest is a wip :/ 
+cus this photo 
+lowkey temporary
+anyways meaf lolol
 
 <img width="431" height="242" alt="image" src="https://github.com/user-attachments/assets/0bd3af5f-96a2-4e57-ac32-a1973d62c0f0" />
 
-[ata](https://ricksanchez.atabook.org) the rest is a wip :/ cus this photo lowkey temporary
-
+[ata](https://ricksanchez.atabook.org) 
 
 <sup><sub> ⠀     thank     u ⠀    <sup><sub>
 
