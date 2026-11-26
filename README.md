@@ -11,6 +11,8 @@ links are a wip oke
 [ata](https://ricksanchez.atabook.org) 
 
 
+
+
   <sup><sub> ⠀     thank     u ⠀    <sup><sub>
 
 <sup><sub>[@pt-stars](https://github.com/pt-stars) [@pt-fashion](https://github.com/pt-fashion) [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) [@pt-heavyfictkin](https://github.com/pt-heavyfictkin) </sub></sup>
