@@ -7,6 +7,7 @@
 don't involve me into drama oke thx<br>
 this is a temporary layout<br>
 links are a wip oke<br>
+ prns is a bit outdated ;w;<br>
 no specific dni I block freely<br>
 ➎teen years young<br>
 
