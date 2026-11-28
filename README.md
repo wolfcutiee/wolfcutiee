@@ -10,7 +10,7 @@ links are a wip oke<br>
 no specific dni I block freely<br>
 ➎teen years young<br>
 
-[ata](https://ricksanchez.atabook.org) 
+[新book](https://ricksanchez.atabook.org) [prns](https://pronouns.cc/@mortysmith)
 
 
 
